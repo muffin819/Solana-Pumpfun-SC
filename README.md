@@ -4,6 +4,5 @@ You can check frontend and backend repo as well.
 
 You can contact me if you want a better product.
 
-Telegram: https://t.me/microgift28
+Telegram: https://t.me/dogewhiz
 
-Discord: https://discord.com/users/1074514238325927956
